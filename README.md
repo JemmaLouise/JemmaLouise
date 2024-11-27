@@ -1,6 +1,6 @@
 ### About Me 👋
 
-🌻 I'm currently working on: CFG Degree in Software Engineering 
+🌻 I'm currently working on: -
 
 🐾 I own one dog, a black labrador 
 
